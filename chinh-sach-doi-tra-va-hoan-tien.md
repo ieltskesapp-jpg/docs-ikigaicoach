@@ -51,7 +51,7 @@ Trừ khi được đề cập trong Chính sách Trả hàng và Hoàn tiền n
 
 **IKES** tiếp nhận khiếu nại qua các hình thức sau:
 
-Tại website thông qua các kênh bình luận, Qua các số hỗ trợ: 0865629096
+Tại website thông qua các kênh bình luận, Qua các số hỗ trợ: 0987829695
 
 Qua email: info@ikes.edu.vn hoặc trực tiếp tại ELTS IKES Edu Vietnam., inc.
 
