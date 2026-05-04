@@ -15,7 +15,7 @@
 * [Chính sách mua hàng trực tuyến](chinh-sach-mua-hang-truc-tuyen-1.md)
 * [CHÍNH SÁCH BẢO HÀNH KHOÁ HỌC](chinh-sach-bao-hanh-khoa-hoc.md)
 * [CHÍNH SÁCH ĐỔI TRẢ VÀ HOÀN TIỀN](chinh-sach-doi-tra-va-hoan-tien.md)
-* [QUY CHẾ HOẠT ĐỘNG WEBSITE BÁN HÀNG TRỰC TUYẾN https://web.ikes.ikigroup.vn/](quy-che-hoat-dong-website-ban-hang-truc-tuyen-https-web.ikes.ikigroup.vn.md)
+* [QUY CHẾ HOẠT ĐỘNG WEBSITE BÁN HÀNG TRỰC TUYẾN https://app.ikes.edu.vn/](quy-che-hoat-dong-website-ban-hang-truc-tuyen-https-web.ikes.ikigroup.vn.md)
 * [CHÍNH SÁCH GIAO NHẬN & KIỂM TRA KHOÁ HỌC](chinh-sach-giao-nhan-and-kiem-tra-khoa-hoc.md)
 * [CHÍNH SÁCH THANH TOÁN](chinh-sach-thanh-toan-1.md)
 * [CHÍNH SÁCH BẢO MẬT THÔNG TIN](chinh-sach-bao-mat-thong-tin.md)
