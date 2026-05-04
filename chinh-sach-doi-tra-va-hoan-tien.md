@@ -53,6 +53,6 @@ Trừ khi được đề cập trong Chính sách Trả hàng và Hoàn tiền n
 
 Tại website thông qua các kênh bình luận, Qua các số hỗ trợ: 0865629096
 
-Qua email: info@ikisoft.vn hoặc trực tiếp tại CÔNG TY CỔ PHẦN IKIGROUP.
+Qua email: info@ikes.edu.vn hoặc trực tiếp tại ELTS IKES Edu Vietnam., inc.
 
 Việc giải quyết khiếu nại thông qua cơ sở thỏa thuận và đàm phán của các bên liên quan. Nếu thông qua hình thức thỏa thuận mà vẫn không thể giải quyết được mâu thuẫn phát sinh thì một trong 2 bên người mua và người bán sẽ có quyền nhờ đến cơ quan pháp luật có thẩm quyền can thiệp nhằm đảm bảo lợi ích hợp pháp của các bên nhất là cho khách hàng.
