@@ -1,0 +1,7 @@
+---
+description: Cookie
+---
+
+# Cookie
+
+Cookie

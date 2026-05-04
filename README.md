@@ -1,2 +1,2 @@
-# Chính sách bảo mật
+# Chính sách mua hàng trực tuyến
 
